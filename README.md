@@ -35,9 +35,9 @@
 
 ## 📫 Connect With Me
 
-LinkedIn: Add Your LinkedIn Link
+LinkedIn: https://www.linkedin.com/in/abhishek-kumar-147b2a1b3?utm_source=share_via&utm_content=profile&utm_medium=member_android
 
-Email: your-email@gmail.com
+Email: your-abhishekkumar214525@gmail.com
 
 ---
 
